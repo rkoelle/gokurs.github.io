@@ -1,0 +1,2 @@
+# gokurs.github.io
+Pages
